@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Chzea
+- 👀 I’m interested in saying hi to the community
+- 🌱 I’m currently learning how to use GitHub
+- 📫 If you want to reach me, check out my youtube and AJPW both named HailCheese
